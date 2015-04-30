@@ -1,0 +1,1 @@
+O Objetivo da criação deste site é apresentar uma visão a respeito da melhor maneira possível para se viver com saúde, educação de qualidade, conhecimento nos diversos campos do saber e tranquilidade para viver, com paz, alegria e muito amor, cuidando do meio em que se vive.
